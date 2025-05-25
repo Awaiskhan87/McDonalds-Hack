@@ -7,3 +7,4 @@ One of the benefits of being a McDonald's employee is that you recieve a 50% dis
 ** The McDonalds Canada Corporation shut down the site ** 
 
 
+<a href="https://mcdonalds-menus.ca/">McDonald's menu with prices canada</a>
